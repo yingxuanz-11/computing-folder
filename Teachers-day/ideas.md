@@ -34,8 +34,10 @@ Section 3: Subsequent lessons with teacher
 
 Section 4: Conversations with teacher
 
-Section 5: Appreciation of teacher
+Section 5: Interesting facts about the teacher
 
-Section 6: Summary and well wishes
+Section 6: Appreciation of teacher
+
+Section 7: Summary and well wishes
 
 
