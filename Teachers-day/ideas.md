@@ -17,6 +17,7 @@ play the game?
 Mdm Sim likes pink
 Mdm Sim has a dog
 Mdm Sim lives in a condominium
+Mrs Chu lives in the hostel
 
 
 
