@@ -13,4 +13,29 @@ play the game?
 
 *some info I already know*
 
-Mdm Sim likes pink?
+
+Mdm Sim likes pink
+Mdm Sim has a dog
+Mdm Sim lives in a condominium
+
+
+
+**2) poem on teachers**
+
+
+*idea from Yi Xuan*
+A Short Story on Mdm Sim, our Chinese Language teacher
+
+Section 1: First impression of teacher
+
+Section 2: First lesson with teacher
+
+Section 3: Subsequent lessons with teacher
+
+Section 4: Conversations with teacher
+
+Section 5: Appreciation of teacher
+
+Section 6: Summary and well wishes
+
+
