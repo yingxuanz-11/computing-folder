@@ -17,7 +17,8 @@ play the game?
 Mdm Sim likes pink
 Mdm Sim has a dog
 Mdm Sim lives in a condominium
-
+Ms Ng has a sister
+Ms Vora prefers calls to messages 
 
 
 **2) poem on teachers**
