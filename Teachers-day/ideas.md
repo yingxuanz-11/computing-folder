@@ -15,6 +15,11 @@ play the game?
 
 Mrs Chu likes pink?
 
+Mdm Sim is rich?
+Mdm Sim has a dog
+Mdm Sim lives in a condominium?
+
+
 
 **2) poem on teachers**
 
@@ -33,3 +38,4 @@ Section 4: Conversations with teacher
 Section 5: Appreciation of teacher
 
 Section 6: Summary and well wishes
+
