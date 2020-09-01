@@ -14,3 +14,6 @@ play the game?
 *some info I already know*
 
 Mrs Chu likes pink?
+Mdm Sim is rich?
+Mdm Sim has a dog
+Mdm Sim lives in a condominium?
