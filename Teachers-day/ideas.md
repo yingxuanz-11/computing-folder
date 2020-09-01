@@ -13,4 +13,4 @@ play the game?
 
 *some info I already know*
 
-Mrs Chu likes pink?
+Mdm Sim likes pink?
