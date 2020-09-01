@@ -13,11 +13,10 @@ play the game?
 
 *some info I already know*
 
-Mrs Chu likes pink?
 
-Mdm Sim is rich?
+Mdm Sim likes pink
 Mdm Sim has a dog
-Mdm Sim lives in a condominium?
+Mdm Sim lives in a condominium
 
 
 
@@ -38,4 +37,5 @@ Section 4: Conversations with teacher
 Section 5: Appreciation of teacher
 
 Section 6: Summary and well wishes
+
 
