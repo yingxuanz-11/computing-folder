@@ -14,18 +14,17 @@ play the game?
 *some info I already know*
 
 
-Mdm Sim likes pink
-Mdm Sim has a dog
-Mdm Sim lives in a condominium
-Mrs Chu lives in the hostel
+Mdm Sim likes pink, has a dog
+Mrs Chu lives in the school hostel
 
 
 
 **2) poem on teachers**
 
 
+
+**3) short stories on teachers**
 *idea from Yi Xuan*
-A Short Story on Mdm Sim, our Chinese Language teacher
 
 Section 1: First impression of teacher
 
