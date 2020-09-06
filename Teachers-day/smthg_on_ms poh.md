@@ -7,7 +7,7 @@
 
 *P* atient in explaining all the concepts annd answering techniques
 
-*O* utgoing and funny!
+_O_ utgoing and funny!
 
 *H* appy as a lark. She always smiles
 
