@@ -1,16 +1,16 @@
 ### Ms Poh
 
-**M**otivational in every way, especially jokes and the sweets she gives us. HAHAHA
+**M**otivational in every way, especially jokes and sweets. HAHAHA
 
 **S**incere and caring to everyone!
 
+**P**atient in explaining all the concepts and answering techniques
 
-**P**atient in explaining all the concepts annd answering techniques
+**O**utgoing, optimistic and funny!
 
-**O**utgoing and funny!
-
-**H**appy as a lark. She always smiles
+**H**appy and hard-working, Ms Poh is always really happy to help us with anything!
 
 someone wrote this:（Can be written into a poem or song and elaborate on her characteristics）
 
-Maybe you can make one for other teachers? Or you can add other adjectives like hard-working or optimistic?
+
+
