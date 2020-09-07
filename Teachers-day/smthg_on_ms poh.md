@@ -12,3 +12,5 @@
 **H**appy as a lark. She always smiles
 
 someone wrote this:（Can be written into a poem or song and elaborate on her characteristics）
+
+Maybe you can make one for other teachers? Or you can add other adjectives like hard-working or optimistic?
