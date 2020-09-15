@@ -33,7 +33,7 @@ as the queue before you shortens.<br/>
 However, to your utmost frustrATION, by the time you reach the counter, most of the food is sold out, leaving..... the worst thing EVER (input food name)<br/>
 
 just when you thought that there was when all the unpleasant things would end, something else happened...<br/>
-your soup spilled on your uniform and burned like hell
+your hot soup spilled on your uniform and burned like hot charcoal just out from a furnace
 
 to be continued......<br/>
 
