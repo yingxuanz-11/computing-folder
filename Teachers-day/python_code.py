@@ -1,4 +1,4 @@
-#**find the error here! ** don't be fooled by the unfamiliar code!
+#find the error here!  don't be fooled by the unfamiliar code!
 import pyb
 
 pyb.LED(3).on()                
