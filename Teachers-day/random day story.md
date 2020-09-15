@@ -7,7 +7,7 @@ the longest day which ends at 4:20pm
 ***first lesson: Math (1hour long)***
 
 You forgot to bring your textbook, notebook and overdue assignments by two weeks.  
-You get scolded by teacher
+You get scolded by teacher.
 Afterwards, she continues to give more work.
 And you have to hand it all up tomorrow.
 
@@ -18,7 +18,7 @@ and grunt in frustration, willing the timer to slow down but it doesn't.  By the
 You press quickly on the blue square but to your upmost horror, you lost connection again!!!!!!!
 After reconnecting, you try the next few options but because of the laggy wifi, your position drops lower, and lower, and lower, and lower, and lower, and lower, and lowe , and lower, and lower, and lower, and lower, and lower, and lower......
 Tears of desperation blur your eyes as the spotlight falls on the username which would not have if the wifi hadn't been so rebellious.  Your kick the table leg in frustration
-Argh
+Argh <br/>
 Aaarrrgghh
 AAARRRGGGHHHHH
 What a bad day for you!
