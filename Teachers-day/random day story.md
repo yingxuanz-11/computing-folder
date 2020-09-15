@@ -17,24 +17,20 @@ You are first on the podium with a answer streak of 23 when suddenly.... you jus
 and grunt in frustration, willing the timer to slow down but it doesn't.  By the time you do that, the timer is up. Don't fret yet! you are still on the podium, down by four places. You know you have to climb up in the next crucial question with double points. 
 You press quickly on the blue square but to your upmost horror, you lost connection again!!!!!!!
 After reconnecting, you try the next few options but because of the laggy wifi, your position drops lower, and lower, and lower, and lower, and lower, and lower, and lowe , and lower, and lower, and lower, and lower, and lower, and lower......
-Tears of desperation blur your eyes as the spotlight falls on the username which would not have if the wifi hadn't been so rebellious.  Your kick the table leg in frustration
+Tears of desperation blur your eyes as the spotlight falls on the username which would not have if the wifi hadn't been so rebellious.  Your kick the table leg in frustration <br/>
 Argh <br/>
-Aaarrrgghh
-AAARRRGGGHHHHH
-What a bad day for you!
+Aaarrrgghh<br/>
+AAARRRGGGHHHHH<br/>
+What a bad day for you!<br/>
 
-***RECESS (the supposedly "best" lesson of the day)***
-
-Phone has no battery
-
-You also forgot to bring your wallet and have to borrow money for recess
-
-The queue for your favourite stall is soooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo long
-
-You wait nevertheless,
-and wait,
-as the queue before you shortens.
-However, to your utmost frustrATION, by the time you reach the counter, most of the food is sold out, leaving..... the worst thing EVER (input food name)
+***RECESS (the supposedly "best" lesson of the day)***<br/>
+Phone has no battery<br/>
+You also forgot to bring your wallet and have to borrow money for recess<br/>
+The queue for your favourite stall is soooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo long<br/>
+You wait nevertheless,<br/>
+and wait,<br/>
+as the queue before you shortens.<br/>
+However, to your utmost frustrATION, by the time you reach the counter, most of the food is sold out, leaving..... the worst thing EVER (input food name)<br/>
 
 
 
