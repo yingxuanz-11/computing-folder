@@ -8,7 +8,7 @@ pyb.LED(3).off()
 
 pyb.LED(4).on()                
 
-if switch_value
+if switch_value:
     pyb.usb_mode('CDC+MSC')
 else:
     pyb.usb_mode('CDC+HID')
