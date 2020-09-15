@@ -2,7 +2,7 @@
 
 **M**otivational in every way, especially jokes and sweets. HAHAHA
 
-**S**incere and caring to everyone!
+**S**upurb in explaining concepts in addition to being sincere and caring to everyone!
 
 **P**atient in explaining all the concepts and answering techniques
 
